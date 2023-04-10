@@ -1,5 +1,5 @@
 ### Welcome!
 
-![!](https://imgur.com/VtNSAdC)
+![!](about:blank)
 
 [My SoundCloud](https://soundcloud.com/resurrectedevil)  | [r/eddit page](https://www.reddit.com/u/resurrectedevil)
